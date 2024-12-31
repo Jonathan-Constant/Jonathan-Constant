@@ -1,4 +1,4 @@
-# 💼 **Jonathan Constant - IT Support and Web/Application Developer**
+# 💼 **Jonathan Constant - Web/Application Full Stack Developer - **
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-Connect-blue)](https://linkedin.com/in/your-profile)  
 📍 Orlando, FL | 📧 [Jonathan_constant@enlighten-e.com](mailto:Jonathan_constant@enlighten-e.com) | 📞 407-494-6120  
